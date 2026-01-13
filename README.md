@@ -1,5 +1,5 @@
 Sadly, the Discord is deleted 🪦💀
-I just don't have time or resources to moderate the server, and with Discord having no protection against constant trolls / multiple accounts etc, I cant justify the effort any longer. I'm sorry to everyone who actually did help and contribute.
+I just don't have time or resources to moderate the server, and with Discord having no protection against constant trolls / multiple accounts etc, I cant justify the effort any longer. Thank you to everyone who actually did help and contribute.
 
 <!--
 **plumbwick3d/plumbwick3d** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
